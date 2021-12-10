@@ -1,6 +1,5 @@
 **Potential-cat**
 
-Meow !!
 Let’s learn to meow like a cat
 Let’s meow meow meow meow meow together
 Acting cute before you
