@@ -7,4 +7,4 @@ Oh my, meow meow meow meow meow
 Every day, I need your hug
 Let’s learn to meow like a cat
 
-[Join-Discord](https://discord.gg/9TJJWxpymM)
+[Join-Discord](https://discord.gg/9TJJWxpymM) 
