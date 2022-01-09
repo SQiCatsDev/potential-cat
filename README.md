@@ -1,4 +1,4 @@
-**Potential-cat**
+**Potential_cat**
 
 Let’s learn to meow like a cat
 Let’s meow meow meow meow meow together
